@@ -11,8 +11,7 @@ TRWEfd
 ter
 dsd
 fdsfFDD
-gfT
-hgdeD
+gfTTR
 dD
 ef
 F
